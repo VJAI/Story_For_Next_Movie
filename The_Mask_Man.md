@@ -1,6 +1,6 @@
-# The Human Predator
+# The Mask Man
 
-> The world needs cure and I've one! - Predator
+> The world needs cure and I've one! - The Mask Man
 
 ## The Box
 
