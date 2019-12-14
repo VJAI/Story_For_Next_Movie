@@ -4,8 +4,8 @@ I'm a day dreamer and I don't know it's because of my I'm a lunar piscean. I wis
 
 All of these stories are free. You are free to copy the characters or the complete story and tweak the way you want. All I request is one thing. Please drop a reference to this repo in your material that will make me more happy than anything.
 
-*All of these stories are born from my own mind and if they relates to any book or movie, it's not by intent.* 
+> *All of these stories are born from my own mind and if they relates to any book or movie, it's not by intent.* 
 
-DONATIONS ARE ACCEPTED. 
+💰 DONATIONS ARE ACCEPTED 💰
 
-CONTACT: VIJAY.PRIDEPARROT AT GMAIL.COM
+📧 vijay.prideparrot AT gmail.com
