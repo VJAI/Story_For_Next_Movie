@@ -1,4 +1,4 @@
-# Story For Next Movie
+![Story For Next Movie](https://github.com/VJAI/Story_For_Next_Movie/blob/master/Logo.png)
 
 I'm a day dreamer and I don't know it's because of my I'm a lunar piscean. I wish I could be a director or an actor but I know neither of them is gonna happen (atleast in this birth). I used to imagine a lot of characters, stories and sometimes I share with my wife or to a friend. I don't want these stories getting lost in wind. I'm not that good at writing and neither proficient in English. I just want to record them somewhere so others can easily access it. They are not complete stories but they have enough info to give the theme or the plot of the story. I share them in the hope that it may potentially trigger someone to write a book or create a movie. 
 
