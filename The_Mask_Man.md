@@ -1,5 +1,7 @@
 # The Mask Man
 
+Genres: *Crime* *Horror* *Thriller*
+
 ![Story For Next Movie](https://github.com/VJAI/Story_For_Next_Movie/blob/master/The_Mask_Man.jpg)
 
 > The world needs cure and I've one! - *The Mask Man*
