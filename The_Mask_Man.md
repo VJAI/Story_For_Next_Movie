@@ -1,4 +1,4 @@
-![Story For Next Movie](https://github.com/VJAI/Story_For_Next_Movie/blob/master/The_Mask_Man.jpeg)
+![Story For Next Movie](https://github.com/VJAI/Story_For_Next_Movie/blob/master/The_Mask_Man.jpg)
 
 # The Mask Man
 
