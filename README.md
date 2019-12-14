@@ -6,4 +6,6 @@ All of these stories are free. You are free to copy the characters or the comple
 
 *All of these stories are born from my own mind and if they relates to any book or movie, it's not by intent.* 
 
-DONATIONS ARE ACCEPTED
+DONATIONS ARE ACCEPTED. 
+
+CONTACT: VIJAY.PRIDEPARROT AT GMAIL.COM
