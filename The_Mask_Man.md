@@ -1,6 +1,7 @@
 # The Mask Man
 
-Genre: *Crime Thriller* &nbsp;&nbsp;&nbsp;&nbsp;|&nbsp;&nbsp;&nbsp;&nbsp; Rating: A
+Genre: *Crime Thriller*
+Rating: A
 
 ![Story For Next Movie](https://github.com/VJAI/Story_For_Next_Movie/blob/master/The_Mask_Man.jpg)
 
