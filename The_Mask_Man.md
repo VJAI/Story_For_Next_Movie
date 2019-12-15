@@ -157,7 +157,7 @@ There is no cure. This is what this fool say. But I know there is a cure. I need
 He was thinking about the two young woman and the man... how easily he trapped them. How foolish these human beings are? All these social sites and the internet things gives ton of information about a person, their interests, their movements.. and more. It's a month over now from the last. The bottles are already running out. He has to fill the new bottles today. Luckily he already have a prey. This time it's a woman. Let's do it! He hurries to the basement where the poor woman is tied in a bed.
 
 
-## The Killer's House
+## The Lab
 
 
 How he could get the acces to their blood? Is he working in hospital? Martin didn't call me yet! Atone my phone rang.
