@@ -157,7 +157,56 @@ There is no cure. This is what this fool say. But I know there is a cure. I need
 He was thinking about the two young woman and the man... how easily he trapped them. How foolish these human beings are? All these social sites and the internet things gives ton of information about a person, their interests, their movements.. and more. It's a month over now from the last. The bottles are already running out. He has to fill the new bottles today. Luckily he already have a prey. This time it's a woman. Let's do it! He hurries to the basement where the poor woman is tied in a bed.
 
 
-## The 
+## The Killer's House
+
+
+How he could get the acces to their blood? Is he working in hospital? Martin didn't call me yet! Atone my phone rang.
+
+"Boss. You don't believe this"
+
+"All of them visited hospital in a month period"
+
+"Yes... Yes. Same hospital?"
+
+"No"
+
+"No?"
+
+"Two of them visited the City hospital and the other one different"
+
+"Alright. Thanks"
+
+So it's not the same hospital! That's little discouraging but let's take a visit to the City hospital.
+
+"Two months back, these people visited your hospital. May I know what tests they've gone?"
+
+"They came for usual health checkup"
+
+"What kind of tests you people taken?"
+
+"Usual"
+
+"All the tests are done here?"
+
+"Yes. No... except the serology test. That we send to a lab"
+
+Lab?
+
+"Can you share the details of the lab?"
+
+"Yes, sure."
+
+My phone started to ring. It's Martin.
+
+"Boss. I talked with the doctor. That person came for health checkup"
+
+"Did you ask what tests they have taken"
+
+"Yes. And one more thing. For some tests they send the samples to a lab"
+
+"Thanks a ton! That's all I want to know"
+
+I started my car engine and hurried to the lab that is in the west corner of the city.
 
 
 
