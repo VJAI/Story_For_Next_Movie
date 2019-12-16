@@ -208,8 +208,7 @@ My phone started to ring. It's Martin.
 
 "Thanks a ton! That's all I want to know"
 
-I started my car engine and hurried to the lab that is in the west corner of the city.
-
+I started my car engine and hurried to the lab that is in the west corner of the city. The lab looks normal nothing seems to be strange. I didn't tell them that I'm a cop. I told I came for the usual blood check-up.
 
 
 
