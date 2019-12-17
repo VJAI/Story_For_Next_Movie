@@ -208,7 +208,53 @@ My phone started to ring. It's Martin.
 
 "Thanks a ton! That's all I want to know"
 
-I started my car engine and hurried to the lab that is in the west corner of the city. The lab looks normal nothing seems to be strange. I didn't tell them that I'm a cop. I told I came for the usual blood check-up.
+I started my car engine and hurried to the lab that is in the west corner of the city. The lab looks normal nothing seems to be strange. I didn't tell them that I'm a cop. I told I came for the usual blood check-up. A lady turned up and took me to a room where they collect the sample. I was looking into her to sense anything suspicious going on. She was friendly and nothing seems to be strange. I gave some speech to her to see whether I can get something. Nothing came-up fruitful. It was little disappointing and I was about to leave the room and I saw something in the tabe. What is that? It's a pollution mask! I turned to her and asked.
+
+"It's difficult nowadays to survive without masks isn't it?"
+
+"Oh.. that one is not mine. It's Jade's. He left early leaving this behind."
+
+Jade?
+
+"Yeah... I remember him. We met last time when he did the test. I lost his number"
+
+"You want this number?"
+
+"It would be great"
+
+I noted down the number she gave and moved out of the lab quickly. I called Martin and asked to find the location of the number immediately. He gave the details in minutes. It's half an hour from the lab. May be this is the guy we are searching? I reached his house and it's not surrounded by many houses. What an ideal place to do the surgery? I knocked at the door. A old lady showed up. Jade is the tenant and living in the top floor. I took the stairs and reached the top floor in slow steps. The door was closed. I knocked it and there was no reply. I knocked it little harder and the door opened. It's not closed. He is not inside? I started to search the house to see whether I can find anything before Jade or the old lady shows up. The room looks unclean and a usual bachelor room. There is nothing special. I searched everywhere and disappointed. There is nothing other than the usual stuff. May be Jade is not the killer? Am I overthinking?
+
+
+## The Chase
+
+The Mask Man started getting busy for his next surgery and he is mildly interrupted by the ping sound in his advanced mobile. His eyes widened seeing the app showing someone entering his house. Who is he? Is he a cop? Looks so. The Mask Man not a bit surprised or even shocked he was just watching the live stream in amusement. Alright they got some clue but he knows it's never gonna lead towards him. He is totally in a different placea different apartment. No one can even imagine this place. He saw Victor leaving his room and closed the app. We've to fix that lock in his rented house but the good thing is I know someone is behind me. He turned towards the woman tied in the bad barely awake and started to get busy with the surgery. Once he get what he wants she'll be just a pile of flesh in a box.
+
+Victor about to come out of the room and suddenly shocked by a delivery man standing in front of his room.
+
+"Jade? You got a delivery"
+
+For a second I about to say no but then..
+
+"Yes. Thanks"
+
+The delivery man left. I took it and came back to my office. For minutes I was staring at the small parcel sitting on my desk. May be I should leave it in the room? But... finally I started to open it. Voila! What the hell are these medicines? I see different kind of medicines in the box. My face lightened up. We got something. I googled and it showed these medicines are used as anaesthesia and for other things. Wohooo... this is our guy!!! I called Martin and asked him to come to office immediately. We together again started to drive towards Jade room.
+
+Jade was still not there. Luckily the old lady didn't show up. May be she was sleeping. We did a thorough search again. There should be some secret room. The app confirms the mobile is still here. Is Jade left the mobile here? After spending 20 minutes we found the mobile. It's a china made. We can't misjudge this guy. He is smarter.
+
+"Sir... there is a camera here"
+
+Martin shouted.
+
+The Mask Man got surprised by the delivered message from Amazon. He didn't collect the parcel. Then who did? The cop got that. Another ping sound from his mobile showed the live stream of two people searching his room. He not a bit surprised just watche in amusement like a cat watching a mouse.
+
+Victor turned to the Camera and said in low clear voice.
+
+"I know you are watching me. I'll find you and hunt you"
+
+Victor left the place with Jade's mobile.
+
+The Mask Man got angry. A human hunt him? I'm the hunter and you are the hunt. He knows from the time he was a boy he was way more smarter than the fellow children. He never considered himself same as them. He thinks always they are way lower than him in the food chain. How he can challenge himself? It triggered his self esteem. He remembers how he hunted each of the people. 
+
 
 
 
