@@ -225,7 +225,7 @@ Jade?
 I noted down the number she gave and moved out of the lab quickly. I called Martin and asked to find the location of the number immediately. He gave the details in minutes. It's half an hour from the lab. May be this is the guy we are searching? I reached his house and it's not surrounded by many houses. What an ideal place to do the surgery? I knocked at the door. A old lady showed up. Jade is the tenant and living in the top floor. I took the stairs and reached the top floor in slow steps. The door was closed. I knocked it and there was no reply. I knocked it little harder and the door opened. It's not closed. He is not inside? I started to search the house to see whether I can find anything before Jade or the old lady shows up. The room looks unclean and a usual bachelor room. There is nothing special. I searched everywhere and disappointed. There is nothing other than the usual stuff. May be Jade is not the killer? Am I overthinking?
 
 
-## The Chase
+## The Challenge
 
 The Mask Man started getting busy for his next surgery and he is mildly interrupted by the ping sound in his advanced mobile. His eyes widened seeing the app showing someone entering his house. Who is he? Is he a cop? Looks so. The Mask Man not a bit surprised or even shocked he was just watching the live stream in amusement. Alright they got some clue but he knows it's never gonna lead towards him. He is totally in a different placea different apartment. No one can even imagine this place. He saw Victor leaving his room and closed the app. We've to fix that lock in his rented house but the good thing is I know someone is behind me. He turned towards the woman tied in the bad barely awake and started to get busy with the surgery. Once he get what he wants she'll be just a pile of flesh in a box.
 
@@ -253,11 +253,17 @@ Victor turned to the Camera and said in low clear voice.
 
 Victor left the place with Jade's mobile.
 
-The Mask Man got angry. A human hunt him? I'm the hunter and you are the hunt. He knows from the time he was a boy he was way more smarter than the fellow children. He never considered himself same as them. He thinks always they are way lower than him in the food chain. How he can challenge himself? It triggered his self esteem. He remembers how he hunted each of the people. 
+The Mask Man got angry. A human hunt him? I'm the hunter and you are the hunt. He knows from the time he was a boy he was way more smarter than the fellow children. He never considered himself same as them. He thinks always they are way lower than him in the food chain. How he can challenge himself? His voice ringing in his brain making him more angry. He remembers how he hunted each of the people. It didn't take much time for him to hack the hospital systems and for every blood sample it was easy to get the person's address. All these social media and the internet they leak lot about each people. You just put a nice profile pic and send a friend request they accept it. You can easily know their interests, location and more. What more a predator wants? He remembers the trap he set for each one and how easy to hunt them. This thing vows he hunt me... nope.. i'll hunt him.
+
+On that night, the Mask Man broke to the lab and stole all the blood samples.
 
 
+## The Chase
 
 
+Victor is not happy. He should have warned the lab. It's late Jade got the samples. It may not be Jade who knows his real name. He faked everything. Where he really lives? He is good at many things. Good at hacking. Good at faking. Good at alluring people. How we can find him? He knows now for why he hunt the people. Bone marrow. It's missing in each of the victim. Victor already asked Martin to search bio profile of the missing samples with the victims. May be we can watch closely the people that got matched and trap the guy? I'm tired and I need some rest.
+
+It was about mid night.
 
 
 
