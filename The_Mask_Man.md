@@ -263,7 +263,66 @@ On that night, the Mask Man broke to the lab and stole all the blood samples.
 
 Victor is not happy. He should have warned the lab. It's late Jade got the samples. It may not be Jade who knows his real name. He faked everything. Where he really lives? He is good at many things. Good at hacking. Good at faking. Good at alluring people. How we can find him? He knows now for why he hunt the people. Bone marrow. It's missing in each of the victim. Victor already asked Martin to search bio profile of the missing samples with the victims. May be we can watch closely the people that got matched and trap the guy? I'm tired and I need some rest.
 
-It was about mid night.
+It was mid night. There was a sound outside the apartment. Victor woke up. The security was shouting. Victor jumped from the bed and reached the ground floor. He saw the security guard and bunch of people are standing and chatting about something.
+
+"What's going on?"
+
+Victor asked the security.
+
+"I saw a man sneaking into the parking area. I shouted at him and he left."
+
+"Did you see him"
+
+"No. It was dark and couldn't able to see him clearly"
+
+"Robbers"
+
+The neighbhour apartment guy said.
+
+Weeks passed. Victor and Martin collected some information from the old lady. Unfortuntaely she has a poor eye sight. They noted whatever she said and came up with a rough photo. They asked the neighbhours and the lab employees. No body knows much about. He is a loner and a man of few words. They already got the information of the people who missed their blood samples, including him. He has to yet get the info of the potentially matching samples. He has asked his colleagues to keep an eye on each of them.
+
+Victor and Martin are driving the car. Victor started to wonder the Mask Man would be doing now. Setting the trap for the next prey. From the latest turn over of the investigation he got more info about how he kidnapped. He used the social tools as the way to get close with them. They haven't got anything useful from his fake account and they blocked them as well.
+
+"Martin..."
+
+"Yes Sir"
+
+"What he would be doing now?"
+
+"I think he might be scared of us and hiding somewhere"
+
+"No.. no.. I don't think so"
+
+"If you notice.. every box we got around 40-45 days"
+
+"Yeah"
+
+"From the last box... 45 days getting over by tonight"
+
+"Oh.. Yeah"
+
+"He may be following someone. Did you get any information?"
+
+"No. I haven't got any suspicious from the guards"
+
+"Ask them to be alert"
+
+Few metres after a car is following with a man wearking mask inside. He was following him for couple of weeks now. He was interested in the conversation they are having now. It was little risky for him on that day to sneak him into his apartment and implant that tracking device in the car. The security guy nearly caught him. He got very interested in Victor. He learnt a lot following him every day. He is impressed seeing how fit, healthy and happy he is. He don't easily gives up. Is that quality he liked very much.
+
+He was glancing outside the window watching the people. They are always in hurry like the sky is falling down. How small their world is. Without knowing what life is and what it's purpose they live everyday. They are living for someones dreams. The world needs a cure and I've one. Once I fix myself, I'll fix this world. God has created me for a purpose, I know it and I'll implement it.
+
+"Victor... Is that black car following us?"
+
+"You... may be... right. I saw that before too?"
+
+"Do you see who is sitting there?"
+
+"Looks like a male... what he is wearing?"
+
+"It's our man!" Victor yelled.
+
+The Mask Man turned the car quickly and drove fast. Victor started following him.
+
 
 
 ## The Hunt
