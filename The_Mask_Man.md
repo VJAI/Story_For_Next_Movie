@@ -245,7 +245,7 @@ Jade was still not there. Luckily the old lady didn't show up. May be she was sl
 
 Martin shouted.
 
-The Mask Man got surprised by the delivered message from Amazon. He didn't collect the parcel. Then who did? The cop got that. Another ping sound from his mobile showed the live stream of two people searching his room. He not a bit surprised just watche in amusement like a cat watching a mouse.
+The Mask Man got surprised by the delivered message from Amazon. He didn't collect the parcel. Then who did? The cop got that. Another ping sound from his mobile showed the live stream of two people searching his room. He not a bit surprised just watched in amusement like a cat watching a mouse.
 
 Victor turned to the Camera and said in low clear voice.
 
@@ -261,7 +261,7 @@ On that night, the Mask Man broke to the lab and stole all the blood samples.
 ## The Chase
 
 
-Victor is not happy. He should have warned the lab. It's late Jade got the samples. It may not be Jade who knows his real name. He faked everything. Where he really lives? He is good at many things. Good at hacking. Good at faking. Good at alluring people. How we can find him? He knows now for why he hunt the people. Bone marrow. It's missing in each of the victim. Victor already asked Martin to search bio profile of the missing samples with the victims. May be we can watch closely the people that got matched and trap the guy? I'm tired and I need some rest.
+Victor is not happy. He should have warned the lab. It's late Jade got the samples. It may not be Jade who knows his real name. He faked everything. Where he really lives? He is good at many things. Good at hacking. Good at faking. Good at alluring people. How we can find him? He knows now for why he hunt the people. Bone marrow. It's missing in each of the victim. He always wears a mask maybe he is allergic to something. He is sick. He hunt people for medicine. Victor already asked Martin to search bio profile of the missing samples with the victims. May be we can watch closely the people that got matched and trap the guy? I'm tired and I need some rest.
 
 It was mid night. There was a sound outside the apartment. Victor woke up. The security was shouting. Victor jumped from the bed and reached the ground floor. He saw the security guard and bunch of people are standing and chatting about something.
 
@@ -326,6 +326,6 @@ The Mask Man turned the car quickly and drove fast. Victor started following him
 
 ## The Hunt
 
---
+They reached the hall and there was two pathways. Victor took right and there is a staircase that went down. He walked down and there was a room. The door was open. He walked some steps slowly and what he found seems to be a small library with tonnes of books on all medical subjects even including old indian medicine. Why he is reading all these books? There are lot of diagrams throughout the wall. He has done a lot of work. Maybe he found the cure for his disease. He must be inside somewhere. Why he didn't eascape? Suddenly there is a beep sound in his phone. Shit! I should have kept it silent. Victor carefully took the phone there is an email from the doctor who is working for him. Right, he got the people names that matching the killer's profile. Victor saw the first name and his heart nearly stopped. Whattttt? Is it my name listed out first? When he got his blood? Oh... shit... yeah.. I gave the blood for test when I visited the lab. Suddenly something bit on his neck. What's that? It's.... a... needle? Victor eyes started to roll and he went unconsicuous. 
 
 
