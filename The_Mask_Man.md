@@ -307,7 +307,7 @@ Victor and Martin are driving the car. Victor started to wonder the Mask Man wou
 
 "Ask them to be alert"
 
-Few metres after a car is following with a man wearking mask inside. He was following him for couple of weeks now. He was interested in the conversation they are having now. It was little risky for him on that day to sneak him into his apartment and implant that tracking device in the car. The security guy nearly caught him. He got very interested in Victor. He learnt a lot following him every day. He is impressed seeing how fit, healthy and happy he is. He don't easily gives up. Is that quality he liked very much.
+Few metres after a car is following with a man wearking mask inside. He was following him for couple of weeks now. He was interested in the conversation they are having now. It was little risky for him on that day to sneak him into his apartment and implant that tracking device in the car. The security guy nearly caught him. He got very interested in Victor. He learnt a lot following him every day. He is impressed seeing how fit, healthy and happy he is. He never gives up. Is this quality he liked very much.
 
 He was glancing outside the window watching the people. They are always in hurry like the sky is falling down. How small their world is. Without knowing what life is and what it's purpose they live everyday. They are living for someones dreams. The world needs a cure and I've one. Once I fix myself, I'll fix this world. God has created me for a purpose, I know it and I'll implement it.
 
@@ -321,8 +321,7 @@ He was glancing outside the window watching the people. They are always in hurry
 
 "It's our man!" Victor yelled.
 
-The Mask Man turned the car quickly and drove fast. Victor started following him.
-
+The Mask Man turned the car quickly and drove fast. Victor started following him. He took quick turns and suddenly vanished. Victor stunned where he went? He may not have escaped. Victor parked the car aside. Both of them get out of the car and started to roam their eyes. This place is very strange! It's a old town that still survives in the city. Quite a number of old buildings still spending their live here. May be this is his home. Yes, there is the black car. Where is he? It's in front of a build old building. Victor and Martin took their gun out and slowly entered into the house.
 
 
 ## The Hunt
