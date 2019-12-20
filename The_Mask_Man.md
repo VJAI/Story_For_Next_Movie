@@ -84,6 +84,10 @@ I'm about to start to my office. I'm gonna tell to my boss today. I'm done with 
 
 "The guy who found the box said he saw a man driving a car"
 
+"Did he note down the car number"
+
+"No. It's a black sedan."
+
 "Did he see the face?"
 
 "No. He had a mask"
@@ -279,7 +283,7 @@ Victor asked the security.
 
 The neighbhour apartment guy said. Victor got little concerned and went back to his apartment.
 
-Weeks passed. Victor and Martin collected some information from the old lady. Unfortuntaely she has a poor eye sight. They noted whatever she said and came up with a rough photo. They asked the neighbhours and the lab employees. No body knows much about. He is a loner and a man of few words. They already got the information of the people who missed their blood samples, including him. He has to yet get the info of the potentially matching samples. He asked Martin ***
+Weeks passed. Victor and Martin collected some information from the old lady. Unfortuntaely she has a poor eye sight. They noted whatever she said and came up with a rough photo. They asked the neighbhours and the lab employees. No body knows much about. He is a loner and a man of few words. They already got the information of the people who missed their blood samples and there are more to put them under watch. He has to yet get the info of the potentially matching samples.
 
 Victor and Martin are in the car. Victor started to wonder the Mask Man would be doing now. Setting the trap for the next prey. From the latest turn over of the investigation he got more info about how he kidnapped. He used the social sites as the tools to get close with them. They haven't got anything useful from his fake account and they blocked them as well.
 
@@ -301,19 +305,17 @@ Victor and Martin are in the car. Victor started to wonder the Mask Man would be
 
 "Oh.. Yeah"
 
-"He may be following someone. Did you get any information?"
+"He may be following someone. Did you get any information about the matching samples?"
 
-"No. I haven't got any suspicious from the guards"
+"Not yet"
 
-"Ask them to be alert"
+Few metres away a black sedan started to follow. The Mask Man was following him for couple of weeks now. He was interested in the conversation they are having now. It was little risky for him on that day to sneak into his apartment and implant that tracking device in his car. The security guy nearly caught him. He got very interested in Victor. He learnt a lot about him following every day. He is impressed by his fitness. He is healthy, happy and witty he thought. He never gives up. Is this quality he liked very much.
 
-Few metres after a car is following with a man wearking mask inside. He was following him for couple of weeks now. He was interested in the conversation they are having now. It was little risky for him on that day to sneak him into his apartment and implant that tracking device in the car. The security guy nearly caught him. He got very interested in Victor. He learnt a lot following him every day. He is impressed seeing how fit, healthy and happy he is. He never gives up. Is this quality he liked very much.
-
-He was glancing outside the window watching the people. They are always in hurry like the sky is falling down. How small their world is. Without knowing what life is and what it's purpose they live everyday. They are living for someones dreams. The world needs a cure and I've one. Once I fix myself, I'll fix this world. God has created me for a purpose, I know it and I'll implement it.
+He was glancing outside the window watching the people. They are always in hurry like the sky is falling down. How small their world is. Without knowing what life is and what it's purpose they live everyday. They are living for someones dreams. The world needs a cure and I've one. Once I fix myself, I'll fix them. God has created me for a purpose, I know it and I'll do it.
 
 "Victor... Is that black car following us?"
 
-"You... may be... right. I saw that before too?"
+"You... may be... right. I saw that before too"
 
 "Do you see who is sitting there?"
 
@@ -321,16 +323,16 @@ He was glancing outside the window watching the people. They are always in hurry
 
 "It's our man!" Victor yelled.
 
-The Mask Man turned the car quickly and drove fast. Victor started following him. He took quick turns and suddenly vanished. Victor stunned where he went? He may not have escaped. Victor parked the car aside. Both of them get out of the car and started to roam their eyes. This place is very strange! It's a old town that still survives in the city. Quite a number of old buildings still spending their live here. May be this is his home. Yes, there is the black car. Where is he? It's in front of a build old building. Victor and Martin took their gun out and slowly entered into the house.
+The Mask Man turned the car quickly and drove fast. Victor started following him. He took quick turns and suddenly vanished. Victor stunned where he went? He may not have escaped. Victor parked the car aside. Both of them get out of the car and started to roam their eyes. This place is very strange! It's a old town that still survives in the city. Quite a number of old buildings still spending their live here. May be this is his home. He ntoiced the black car parked outside an old building. Where is he? Victor and Martin took their gun out and slowly entered into the house.
 
 
 ## The Hunt
 
-They reached the hall and there was two pathways. Victor took right and there is a staircase that went down. He walked down and there was a room. The door was open. He walked some steps slowly and what he found seems to be a small library with tonnes of books on all medical subjects even including old indian medicine. There are lot of diagrams throughout the wall. He has done a lot of work. Maybe he found the cure for his disease. He must be inside somewhere. Why he didn't eascape? Suddenly there is a beep sound in his phone. Shit! I should have kept it silent. Victor carefully took the phone there is an email from the doctor who is working for him. Right, he got the people names that matching the killer's profile. Victor saw the first name and his heart nearly stopped. Whattttt? Is it my name listed out first? When he got his blood? Oh... shit... yeah.. I gave the blood for test when I visited the lab. Suddenly something bit on his neck. What's that? It's.... a... needle? Victor eyes started to roll and he went unconsicuous. 
+They reached the hall and there were two pathways. Victor took right and there is a staircase that went down. He walked down and there was a room. The door was open. He walked some steps slowly and what he found seems to be a small library with tonnes of books on all medical subjects even including old indian medicine. There are lot of diagrams throughout the wall. He has done a lot of work. Maybe he found the cure for his disease. He must be inside somewhere. Why he didn't eascape? Suddenly there is a beep sound in his phone. Shit! I should have kept it silent. Victor carefully took the phone there is an email from the doctor who is working for him. Right, he got the people names that matching the killer's profile. Victor saw the first name and his heart nearly stopped. Whattttt? Is it my name listed out first? When he got his blood? Oh... shit... yeah.. I gave the blood for test when I visited the lab. Suddenly something bit on his neck. What's that? It's.... a... needle? Victor eyes started to roll and he went unconsicuous. 
 
-The Mask Man was surprised when he ran the bio match for the samples he stole from the lab. It's no other than the man who said will hunt him was the only match and best one ever he had. Maybe he is the cure. He'll cure me forever. Like every prey first he learns their weakness. The first victim was obsessed with fitness. Al he needed was a profile with a good pic to impress her. Each one them followingly he used their own weakness to draw them to his trap. It took quite some time to learn Victor's weaknes and he found at last. It's the attitute that chase and not gives up. He used that to chase him in the car. It's sad Victor didn't know that.
+The Mask Man was surprised when he ran the bio match for the samples he stole from the lab. It's no other than the man who said will hunt him was the only match and best one ever he had. Maybe he is the cure. He'll cure me forever. Like every prey first he learns their weakness. The first victim was obsessed with fitness. Al he needed was a profile with a good pic to impress her. Each one of them followingly he used their own weakness to draw them to his trap. It took quite some time to learn Victor's weaknes and he found at last. It's this chasing attitute. He used that to draw him into his trap. It's sad Victor didn't know that.
 
-The Mask Man pulled Victor and moved to a dark room nothing but the lab. He has more work to do. He has to stop Martin. It took a lot of time to find a place like his, old and isolated. Only old people and beggers come to this building. The old building is full on camera surveillance. The Mask Man turned on the computer and he saw Martin was coming to the basement. He took a gun with silencer. Martin was shocked to see Victor lying in the ground. He panicked and turned everywhere. He was here. He took low steps and started to move towards Victor. He slowly bent down and turn Victor and... who the hell? It's late. The Mask Man pulled the trigger couple of times in the head. Martin died with eyes in shock. Good riddance. He has to now only take care of their car to vanish all the evidence.
+The Mask Man dragged Victor to a dark room nothing but his operation room. He has more work to do. He has to stop Martin. It took a lot of time to find a place like this, old and isolated. Only old people and beggers come to this building. The old building is full on camera surveillance. The Mask Man turned on the computer and he saw Martin was coming to the basement. He took a gun with silencer. Martin was shocked to see Victor lying in the ground. He panicked and turned everywhere. He was here. He took low steps and started to move towards Victor. He slowly bent down and turned Victor and... who the hell? It's late. The Mask Man pulled the trigger couple of times in his head. Martin died with eyes in shock. Good riddance. He has to now only take care of their car to vanish all the evidence.
 
 
 
