@@ -1,6 +1,6 @@
 # The Mask Man
 
-Genre: *Crime Thriller*  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;|&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  Rating: A  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;|&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  $20,000 | Available: Yes
+Genre: *Crime Thriller*  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;|&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  Rating: A  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;|&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  $20,000 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;|&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Available: ✅
 
 ![Story For Next Movie](https://github.com/VJAI/Story_For_Next_Movie/blob/master/The_Mask_Man.jpg)
 
