@@ -8,5 +8,5 @@ For buying please contact me @ vijay.prideparrot AT gmail.com
 
 Storied
 
-![The Mask Man - Crimer Thriller](https://github.com/VJAI/Story_For_Next_Movie/blob/master/The_Mask_Man.md) | A | $20,000 | Available
+[The Mask Man](https://github.com/VJAI/Story_For_Next_Movie/blob/master/The_Mask_Man.md) - *Crimer Thriller | A | $20,000 | Available*
 
