@@ -5,3 +5,8 @@ I'm a day dreamer and I dream about a lot interesting characters and stories. In
 > *All of these stories are born from my own mind and if they relates to any book or movie or real character(s) it's just by coincidence.* 
 
 For buying please contact me @ vijay.prideparrot AT gmail.com
+
+Storied
+
+![The Mask Man - Crimer Thriller](https://github.com/VJAI/Story_For_Next_Movie/blob/master/The_Mask_Man.md) | A | $20,000 | Available
+
