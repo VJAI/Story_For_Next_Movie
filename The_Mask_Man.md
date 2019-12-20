@@ -158,7 +158,7 @@ He was thinking about the two young woman and the man... how easily he trapped t
 ## The Lab
 
 
-How he could get the acces to their blood? Is he working in hospital? Martin didn't call me yet! Atone, my phone rang.
+How he could get the access to their blood? Is he working in hospital? Martin didn't call me yet! My phone rang.
 
 "Boss. You don't believe this. All of them visited hospital in a month period"
 
@@ -178,19 +178,21 @@ How he could get the acces to their blood? Is he working in hospital? Martin did
 
 So it's not the same hospital! That's little discouraging but let's take a visit to the City hospital.
 
-"Two months back, these people visited your hospital. May I know what tests they've gone?"
+"I'm from CBI. Two months back, these people visited your hospital. May I know for what diagnosis they came for?"
+
+"Yes, Sure"
 
 "They came for usual health checkup"
 
-"What kind of tests you people taken?"
+"What kind of tests they've gone?"
 
 "Usual"
 
-"All the tests are done here?"
+"All these tests are done here?"
 
 "Yes. No... except the serology test. That we send to a lab"
 
-Lab?
+Lab? Interesting...
 
 "Can you share the details of the lab?"
 
@@ -198,7 +200,7 @@ Lab?
 
 My phone started to ring. It's Martin.
 
-"Boss. I talked with the doctor. That person came for health checkup"
+"Boss. I talked with the doctor. That person came for mild fever"
 
 "Did you ask what tests they have taken"
 
@@ -206,52 +208,52 @@ My phone started to ring. It's Martin.
 
 "Thanks a ton! That's all I want to know"
 
-I started my car engine and hurried to the lab that is in the west corner of the city. The lab looks normal nothing seems to be strange. I didn't tell them that I'm a cop. I told I came for the usual blood check-up. A lady turned up and took me to a room where they collect the sample. I was looking into her to sense anything suspicious going on. She was friendly and nothing seems to be strange. I gave some speech to her to see whether I can get something. Nothing came-up fruitful. It was little disappointing and I was about to leave the room and I saw something in the tabe. What is that? It's a pollution mask! I turned to her and asked.
+There is something happening in the lab. May be soe weird experiments with human? I started my car engine and hurried to the lab that is in the west corner of the city. The lab looks normal nothing seems to be strange. I didn't tell them that I'm a cop. I told I came for the usual blood check-up. A lady turned up and took me to a room where they collected the sample. I was looking into her to sense anything suspicious going on. She was friendly and nothing seems to be strange. I gave some speech to her to see whether I can get something. I was about to leave the room and I saw something in the tabe. What is that? It's a mask! I turned to her and asked.
 
 "It's difficult nowadays to survive without masks isn't it?"
 
-"Oh.. that one is not mine. It's Jade's. He left early leaving this behind."
+"Oh.. that one? It's not mine. It's Jade's. He left early today"
 
 Jade?
 
-"Yeah... I remember him. We met last time when he did the test. I lost his number"
+"Oh, yeah... I remember him. We met last time when he did the test. Shit... I lost his number"
 
-"You want this number?"
+"You want his number?"
 
 "It would be great"
 
-I noted down the number she gave and moved out of the lab quickly. I called Martin and asked to find the location of the number immediately. He gave the details in minutes. It's half an hour from the lab. May be this is the guy we are searching? I reached his house and it's not surrounded by many houses. What an ideal place to do the surgery? I knocked at the door. A old lady showed up. Jade is the tenant and living in the top floor. I took the stairs and reached the top floor in slow steps. The door was closed. I knocked it and there was no reply. I knocked it little harder and the door opened. It's not closed. He is not inside? I started to search the house to see whether I can find anything before Jade or the old lady shows up. The room looks unclean and a usual bachelor room. There is nothing special. I searched everywhere and disappointed. There is nothing other than the usual stuff. May be Jade is not the killer? Am I overthinking?
+I noted down the number she gave and moved out of the lab quickly. I called Martin and asked to find the location of the number immediately. He gave the details in minutes. It's half an hour from the lab. May be this is the guy we are searching? I reached his house and it's not surrounded by many houses. What an ideal place to do the surgery? I knocked at the door. A old lady showed up. I asked about Jade. Jade is the tenant and living in the top floor. I took the stairs and reached the top floor in slow steps. The door was closed. I knocked it and there was no reply. I knocked it little harder and the door opened. It's not closed. He is not inside? I started to search the house to see whether I can find anything before Jade or the old lady shows up. The room looks unclean and a usual bachelor room. There is nothing strange. I searched everywhere and frustrated. There is nothing other than the usual stuff. May be Jade is not the killer? Am I overthinking?
 
 
 ## The Challenge
 
-The Mask Man started getting busy for his next surgery and he is mildly interrupted by the ping sound in his advanced mobile. His eyes widened seeing the app showing someone entering his house. Who is he? Is he a cop? Looks so. The Mask Man not a bit surprised or even shocked he was just watching the live stream in amusement. Alright they got some clue but he knows it's never gonna lead towards him. He is totally in a different placea different apartment. No one can even imagine this place. He saw Victor leaving his room and closed the app. We've to fix that lock in his rented house but the good thing is I know someone is behind me. He turned towards the woman tied in the bad barely awake and started to get busy with the surgery. Once he get what he wants she'll be just a pile of flesh in a box.
+The Mask Man started getting busy for his next surgery and he is mildly interrupted by the ping sound in his advanced mobile. His eyes widened seeing the app showing someone entering his house. Who is he? Is he a cop? Looks so. The Mask Man not a bit surprised or even shocked and he was just watching the live stream in amusement. Alright they got some clue but he knows it's never gonna lead towards him. He is totally in a different place. No one can even imagine this place. He saw Victor leaving his room and closed the app. We've to fix that lock in his rented house but the good thing is I know someone is behind me. He turned towards the woman tied in the bad barely awake and started to get busy with the surgery. Once he get what he wants she'll be just a pile of flesh in a box. Yes in a box, he thought.
 
-Victor about to come out of the room and suddenly shocked by a delivery man standing in front of his room.
+Victor about to leave the the room and suddenly shocked by a delivery man standing in front of the door.
 
 "Jade? You got a delivery"
 
-For a second I about to say no but then..
+For a second I about to say no but then,
 
 "Yes. Thanks"
 
-The delivery man left. I took it and came back to my office. For minutes I was staring at the small parcel sitting on my desk. May be I should leave it in the room? But... finally I started to open it. Voila! What the hell are these medicines? I see different kind of medicines in the box. My face lightened up. We got something. I googled and it showed these medicines are used as anaesthesia and for other things. Wohooo... this is our guy!!! I called Martin and asked him to come to office immediately. We together again started to drive towards Jade room.
+The delivery man left. I took it and came back to my office. For minutes I was staring at the small parcel sitting on my desk. May be I should leave it in the room? But finally I started to open it. Voila! What the hell are these medicines? I see different kind of medicines in the box. My face lightened up. We got something. I googled and it showed these medicines are used as anaesthesia and for other things. Wohooo... this is our guy!!! I called Martin and asked him to come to office immediately. We together again started to drive towards the old lady's house.
 
-Jade was still not there. Luckily the old lady didn't show up. May be she was sleeping. We did a thorough search again. There should be some secret room. The app confirms the mobile is still here. Is Jade left the mobile here? After spending 20 minutes we found the mobile. It's a china made. We can't misjudge this guy. He is smarter.
+Jade was still not there. Luckily the old lady didn't show up this time. May be she was sleeping. We did a thorough search again. There should be some secret room. The app confirms the mobile is still here. Is Jade left the mobile here? After spending hald an hour minutes we found the mobile. It's a china made. We can't misjudge this guy.
 
 "Sir... there is a camera here"
 
 Martin shouted.
 
-The Mask Man got surprised by the delivered message from Amazon. He didn't collect the parcel. Then who did? The cop got that. Another ping sound from his mobile showed the live stream of two people searching his room. He not a bit surprised just watched in amusement like a cat watching a mouse.
+The Mask Man got surprised by the delivered message from Amazon. He didn't collect the parcel. Then who did? The cop? Another ping sound from his mobile showed the live stream of two people searching his room. He's not a bit surprised yet. He just watched them like a cat watching a mouse.
 
 Victor turned to the Camera and said in low clear voice.
 
-"I know you are watching me. I'll find you and hunt you"
+"I know you are watching me. I'll find you.. and.. hunt you"
 
 Victor left the place with Jade's mobile.
 
-The Mask Man got angry. A human hunt him? I'm the hunter and you are the hunt. He knows from the time he was a boy he was way more smarter than the fellow children. He never considered himself same as them. He thinks always they are way lower than him in the food chain. How he can challenge himself? His voice ringing in his brain making him more angry. He remembers how he hunted each of the people. It didn't take much time for him to hack the hospital systems and for every blood sample it was easy to get the person's address. All these social media and the internet they leak lot about each people. You just put a nice profile pic and send a friend request they accept it. You can easily know their interests, location and more. What more a predator wants? He remembers the trap he set for each one and how easy to hunt them. This thing vows he hunt me... nope.. i'll hunt him.
+The Mask Man got angry. A human hunt him? I'm the hunter and you are the hunt, he said himself. He knows from the time he was a boy he was way more smarter than the fellow children. He never considered himself same as them. He thinks always they are way lower than him. How he can challenge himself? His voice echoed in his brain making him more angry. He remembers how he hunted each of the people. It didn't take much time for him to hack the hospital systems and for every blood sample it was easy to get the person's address. All these social media and the internet they leak lot about each people. You just put a nice profile pic and send a friend request they accept it. You can easily know their interests, location and more. What more a predator wants? He remembers the trap he set for each one and how easy to hunt them. This rat vows he hunt me... nope.. i'll hunt him.
 
 On that night, the Mask Man broke to the lab and stole all the blood samples.
 
@@ -259,9 +261,9 @@ On that night, the Mask Man broke to the lab and stole all the blood samples.
 ## The Chase
 
 
-Victor is not happy. He should have warned the lab. It's late Jade got the samples. It may not be Jade who knows his real name. He faked everything. Where he really lives? He is good at many things. Good at hacking. Good at faking. Good at alluring people. How we can find him? He knows now for why he hunt the people. Bone marrow. It's missing in each of the victim. He always wears a mask maybe he is allergic to something. He is sick. He hunt people for medicine. Victor already asked Martin to search bio profile of the missing samples with the victims. May be we can watch closely the people that got matched and trap the guy? I'm tired and I need some rest.
+Victor is not happy. He should have warned the lab. It's late, Jade got the samples. It may not be Jade who knows his real name. He faked everything. Where he really lives? The china modile revealed many things. It's very customizes. All the messages and calls are forwarded to some network that connects hundreds and thousands of computers and finally reaching to the original phone. He is extremely good at many things. Good at hacking. Good at faking. Good at alluring people. How we can find him? He knows now for why he hunt the people. Bone marrow. It's missing in each of the victim. He always wears a mask maybe he is allergic to something. He is sick Victor thought. He hunt people for medicine. Victor already asked Martin to search bio profile of the missing samples with the victims. May be we can watch closely the people that got matched and trap the guy? Victor was tired and slowly sneaked into sleep.
 
-It was mid night. There was a sound outside the apartment. Victor woke up. The security was shouting. Victor jumped from the bed and reached the ground floor. He saw the security guard and bunch of people are standing and chatting about something.
+It was mid night. There was a sound outside the apartment. Victor woke up. The security was shouting. Victor jumped from the bed and reached the ground floor. He saw the security guard and bunch of people are standing and chatting.
 
 "What's going on?"
 
@@ -271,15 +273,15 @@ Victor asked the security.
 
 "Did you see him"
 
-"No. It was dark and couldn't able to see him clearly"
+"No. It was dark and couldn't see him clearly"
 
 "Robbers"
 
-The neighbhour apartment guy said.
+The neighbhour apartment guy said. Victor got little concerned and went back to his apartment.
 
-Weeks passed. Victor and Martin collected some information from the old lady. Unfortuntaely she has a poor eye sight. They noted whatever she said and came up with a rough photo. They asked the neighbhours and the lab employees. No body knows much about. He is a loner and a man of few words. They already got the information of the people who missed their blood samples, including him. He has to yet get the info of the potentially matching samples. He has asked his colleagues to keep an eye on each of them.
+Weeks passed. Victor and Martin collected some information from the old lady. Unfortuntaely she has a poor eye sight. They noted whatever she said and came up with a rough photo. They asked the neighbhours and the lab employees. No body knows much about. He is a loner and a man of few words. They already got the information of the people who missed their blood samples, including him. He has to yet get the info of the potentially matching samples. He asked Martin ***
 
-Victor and Martin are driving the car. Victor started to wonder the Mask Man would be doing now. Setting the trap for the next prey. From the latest turn over of the investigation he got more info about how he kidnapped. He used the social tools as the way to get close with them. They haven't got anything useful from his fake account and they blocked them as well.
+Victor and Martin are in the car. Victor started to wonder the Mask Man would be doing now. Setting the trap for the next prey. From the latest turn over of the investigation he got more info about how he kidnapped. He used the social sites as the tools to get close with them. They haven't got anything useful from his fake account and they blocked them as well.
 
 "Martin..."
 
@@ -295,7 +297,7 @@ Victor and Martin are driving the car. Victor started to wonder the Mask Man wou
 
 "Yeah"
 
-"From the last box... 45 days getting over by tonight"
+"From the last box... Today it's the 45th day from the last box"
 
 "Oh.. Yeah"
 
