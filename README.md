@@ -1,11 +1,7 @@
 ![Story For Next Movie](https://github.com/VJAI/Story_For_Next_Movie/blob/master/Logo.jpg)
 
-I'm a day dreamer and I don't know it's because of my I'm a lunar piscean. I wish I could be a director or an actor but I know neither of them is gonna happen (atleast in this birth). I used to imagine a lot of characters, stories and sometimes I share with my wife or to a friend. I don't want these stories getting lost in wind. I'm not that good at writing and neither proficient in English. I just want to record them somewhere so others can easily access it. They are not complete stories but they have enough info to give the theme or the plot of the story. I share them in the hope that it may potentially trigger someone to write a book or create a movie. 
+I'm a day dreamer and I dream about a lot interesting characters and stories. In this place I record all of them. These stories are written in short and they have enough information to write a lengthy novel or create a wonderful movie. Each story has a price tag attach to it. Once the story is purchased they acquire the full rights to do anything with it. If more parties are interested in a story then it goes for bidding and the one who pays the maximum will own it.
 
-All of these stories are free. You are free to copy the characters or the complete story and tweak the way you want. All I request is one thing. Please drop a reference to this repo in your material that will make me more happy than anything.
+> *All of these stories are born from my own mind and if they relates to any book or movie or real character(s) it's just by coincidence.* 
 
-> *All of these stories are born from my own mind and if they relates to any book or movie, it's not by intent.* 
-
-💰 DONATIONS ARE ACCEPTED 💰
-
-📧 vijay.prideparrot AT gmail.com
+For buying please contact me @ vijay.prideparrot AT gmail.com
