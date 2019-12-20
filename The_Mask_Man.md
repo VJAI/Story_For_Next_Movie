@@ -10,69 +10,65 @@ Rating: A
 
 ## The Box
 
-*What happened to me?* I was tied in a bed barely awake.. Am I in hospital? The place not looks like so.. I can sense someone standing close to me and busy in watching different monitors... Is he a doctor? He looks strange! His face is covered with a mask not the surgeon mask, it's kind of different. What's he gonna do to me? He turned and advanced slowly to me.. What's in his hand? Ohh.. god no!! I jerked from my bed with all sweat... sigh!! another nightare! Never had like this one before. It seemed so real! I couldn't able to sleep further on that night.
+What happened to me? I was tied in a bed barely awake.. Am I in hospital? The place not looks like so.. I can sense someone standing close to me. His face is covered with an odd mask.  Is he a doctor? What's he gonna do to me? He turned and advanced slowly.. What's in his hand? Oh.. god no... stop it! I jerked from my bed with all sweat. Sigh!! another nightare! It seemed so real!
 
-My name is Victor, 36 years old male and I work in CBI (Central Bureau of Investigation). I live with my daughter in an apartment. I have been thinking a while to resign from this field and move to my home-town where my parents still live. May be I need to talk to my senior today?
+My name is Victor, 36 years old male and I work with CBI. I live with my daughter in an apartment. I have been thinking for a while to resign this job and move to my hometown where my parents still live. I should talk to my boss today.
 
-This morning not seems to be so great... may be the dream? I prepared my daughter to the school and reached to my work place around 10. I was sitting in a chair composing my resignation in my mind... suddenly interrupted by a call. "Mr. Victor senior calls you and it's urgent!". I used to this... what's this time? extortion? murder? rape? let's see... I hurried to my senior's office.
+This morning not seems to be so great. May be the dream? I dropped my daughter at school and reached office around 10. I was sitting in a chair composing my resignation in my mind... suddenly interrupted by a call. "Victor, boss calls you and it's urgent!". I used to this before, what's this time? extortion? murder? rape? let's see... I rushed to my boss room.
 
-Raghav's face looks serious and concerned. 
+Darwin's face looks serious and concerned. 
 
 "We got a box!" 
 
-"What box?" 
+"Box? What box?" 
 
-"A box with flesh and we suspect it's human."
+"A box with flesh and we suspect it's human"
 
-"Inspector Martin will explain you further on this and I want you to drive this!"
+"Inspector Martin will explain you further and I want you to get on this quick"
 
-Great! I was thinking to talk about my resignation with this guy and he assigns another case.
+Great! I was thinking to talk about my resignation today and here I get another case.
 
-"Well, will do"
+"Well.. alright"
 
-Martin who was standing in the room turned to me and explained. 
+Martin who was standing in the room turned to me. 
 
-"The box was found in the outer city by a garbage man. We initially thought it's a cow or some animal meat. We sent it to the lab and it looks like of human."
+"The box was found in the outer city by a garbage collector. We initially thought it's a cow or some animal meat. We sent it to the lab and they confirmed it's of human."
 
 "Male or female?"
 
 "Female"
 
-Yeah.. probably a rape! This city is sick!
+"Did you identify the person?"
 
-"Do you able to identify the person?"
-
-"Nope. It's butchered heavily... like in a machine"
+"No, not yet. It's butchered heavily"
 
 "Hmm..."
 
 "What you think the motive could be?"
 
-"No clue.."
+"No clue"
 
 I and Martin walked out of the room.
 
 "Can you look into the missing person details and see you can get something?"
 
-"Sure Sir"
+"Sure"
 
-I came back to my room. Why the killer butchered the body? He don't want to identify them? No much progress has been made for the following two days. But.. in the third day we could able to match with a missing young woman (?). It was very difficult for us to convey the * with her parents. We queried her parents about her close friends, colleagues... For days I and Martin spend time investigating the case around her friends and colleagues. Nothing turned up! Even we investigated in the angle of a random person may be a cab driver... but no luck! I was about to give up.. may be move this case to someone. More than a month passed and no progress in the case yet! My senior and others started to focus on other cases. 
+Probably a rape. This city is sick. Why the killer butchered the body? He don't want to identify them?
+
+No much progress has been made for the following two days. In the third day we could able to match with a missing young woman. It was very difficult for us to convey to her parents. We asked her parents about her close friends and colleagues. For days I and Martin spend time investigating the case around her friends and colleagues. Nothing turned up. More than a month passed and no movement in the case yet.
 
 
 ## The Mask Man
 
 
-I'm about to start to my office. I'm gonna tell to my senior today. I'm done with this job. My mobile started ringing. It's Martin.
+I'm about to start to my office. I'm gonna tell to my boss today. I'm done with this job. My mobile started ringing. It's Martin.
 
 "Sir, we got another box"
 
-"What..."
+"What?"
 
-"Same like last time... human remains"
-
-"Do you able to identify the gender"
-
-"Female again"
+"Same like last time... it's a female"
 
 "No doubt.. a new rapist on town."
 
@@ -88,9 +84,9 @@ I'm about to start to my office. I'm gonna tell to my senior today. I'm done wit
 
 "The guy who found the box said he saw a man driving a car"
 
-"Did he saw the face"
+"Did he see the face?"
 
-"No.. he has a mask in his face"
+"No. He had a mask"
 
 "Mask?"
 
@@ -104,27 +100,27 @@ I'm about to start to my office. I'm gonna tell to my senior today. I'm done wit
 ## The Third Box
 
 
-Days and weeks passed. Lot of people and lot of investigations. No progress. This case started to become a headache. At now, me, my senior and Martin all in the assumption it's more a rape. Both the woman are raped by a same person or same people. Both of them are young and good looking and there is no connection between them. This case is really testing my gut. I used to have a good name around this department in solving cases short time. This one not seems to be so! There is no much news about this mask man. Maybe he was just driving to city.
+Days and weeks passed. Lot of people and lot of investigations. No progress. This case turned into a headache. At now, me, my boss and Martin all in the assumption it's more a rape. Both the woman are raped by a same person or same people. Both of them are young and good looking and there is no connection between them. There is no much news about this mask man. Maybe he was just driving to city.
 
-I'm still wondering how I can convey resignation to my senior. Exactly after a month... there is another box! This time it not belonged to a woman but to a young man. This is no more work of a rapist. I can sense all the victims have some mysterious connections. All are young and fit. Even more surprisingly all of them had same blood group. The killer definitely has a motive but can't figure out it yet.
+I'm still wondering how I can convey resignation to my senior. Exactly after a month there is another box! This time it not belonged to a woman but to a young man. This is no more work of a rapist. I can sense all the victims have some mysterious connections. All are young and fit. Even more surprisingly all of them had same blood group. The killer definitely has a motive but can't figure out it yet.
 
-It's a sunday and I'm sitting in my home thinking about the box, victims, the mask man... my daughter is watching some holywood movie looks like it's Arnold's Predator. Suddenly she turned to me and asked a question.
+It's a sunday and I'm sitting in my home thinking about the box, victims, the mask man... my daughter is watching some movie looks like it's Arnold's Predator. Suddenly she turned to me and asked a question.
 
-"Why this predator kills human?"
+"Why predator kills human?"
 
-"May be for the skull? Looks like they love our skulls"
+"They are fond of skulls"
 
-My thoughts again started to roam around the case. Suddenly it strike me. May be the killer is looking for something? Is he taking some body parts from the victims. I called Martin in phone.
+My thoughts again started to spin around the case. Suddenly it stroke me. May be the killer is looking for something? Is he taking some body parts from the victims. I called Martin.
 
-"Hello Sir"
+"Hello, Sir"
 
 "Is any body parts are missing in the victims?"
 
-"It's hard to know. They are heavily ... We thought in that angle too but we didn't find anything seriously missing"
+"It's hard to know. They are heavily... you know. We thought in that angle too but we didn't find anything seriously missing"
 
-"Maybe we've to look hard enough"
+"Maybe you've to look hard enough"
 
-I quit the call. I can sense something turning up in my mind. He is looking for specific people. Who are healthy, fit and happy. May be all of them fits to his profile in someway. But how could he know that? How we can know the blood group of all of them? Unless he is working in some hospital... yes!! I again called Martin.
+I quit the call. I can feel something turning up. He is looking for specific people. Who are healthy, fit and happy. May be all of them fits to his profile in someway. But how could he know that? How he can know the blood group of all of them? Unless he is working in some hospital? Yes! I again called Martin.
 
 "Martin, can you check the victims recently visited any hospital?"
 
@@ -138,7 +134,7 @@ I'm hoping something will turn this time. I hugged my daughter and hurried to of
 ## The Motive
 
 
-How hard the life was, it's a difficult thing from the day I wake up to turn to bed the medications I need to take, the drops I need to use... but that was past everything changed now. The doctors said some kind of an auto immune condition. Fools, they have no clue about human body. The Mask Man stares at the calendar and this day is special for him, the day he discovered the cure. He was born to wealthy parents. He remembers how his father was with him always giving hope. One day this will cure. The thoughts of his past started to pour inside his mind. It all started like some asthma when he was just 12 and soon started to get worse. He started to pains all over joints and all over the body. He remembers his father taking him dozens of hospitals but nothing changed. There were frequent between his mom and dad and one day his mom took posion and left both of them alone. His father started to drink everyday and died in an accident and after that his grandma started to take care of him.
+How hard life is, it's a difficult thing from the day I wake up to turn to bed the medications I need to take, the drops I need to use... but that was past everything changed now. The doctors said some kind of an auto immune condition. Fools, they have no clue about human body. The Mask Man stares at the calendar and this day is special for him, the day he discovered the cure. He was born to wealthy parents. He remembers how his father was with him always giving hope. One day this will cure. The thoughts of his past started to pour inside his mind. It all started like some asthma when he was just 12 and soon started to get worse. He started to pains all over joints and all over the body. He remembers his father taking him dozens of hospitals but nothing changed. There were frequent between his mom and dad and one day his mom took posion and left both of them alone. His father started to drink everyday and died in an accident and after that his grandma started to take care of him.
 
 The school life was tough for him. There were no friends and he was always alone. Everyone looked him odd seeing him always wearing a mask. Maybe he is sick, they thought. The loneliness didn't affect him. In fact, he has problems to connect with people too. Though nature gave him a weak body but blessed him with a highly intellectual brain. His teachers surprised by this intelligent and the same time concerned by his behavior. The behavior he can't even see the fellow human beings as his own level. For him they are immatured and low lives. This thought started to grow more and more along with the disease. After this father's deadth he swore to find a cure for his disease. He read every popular book out there. He didn't even miss to know the classic medicine. But nothing worked. He started to consult lot of doctors to know about this disease better but only very disappointed by their stupid science. The science where they see the human body is made of independent parts manufactured by different companies. Everything changed in this day. When his more evolved brain cracked the puzzle - the genetic code. He hurried to his usual doctor and asked about the new things he discovered in genetics.
 
