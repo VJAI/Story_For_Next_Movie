@@ -134,37 +134,35 @@ I'm hoping something will turn this time. I hugged my daughter and hurried to of
 ## The Motive
 
 
-How hard life is, it's a difficult thing from the day I wake up to turn to bed the medications I need to take, the drops I need to use... but that was past everything changed now. The doctors said some kind of an auto immune condition. Fools, they have no clue about human body. The Mask Man stares at the calendar and this day is special for him, the day he discovered the cure. He was born to wealthy parents. He remembers how his father was with him always giving hope. One day this will cure. The thoughts of his past started to pour inside his mind. It all started like some asthma when he was just 12 and soon started to get worse. He started to pains all over joints and all over the body. He remembers his father taking him dozens of hospitals but nothing changed. There were frequent between his mom and dad and one day his mom took posion and left both of them alone. His father started to drink everyday and died in an accident and after that his grandma started to take care of him.
+How hard life was, it was difficult and tiring from the day I woke up until I turn to bed. All those medications... all those drops... all those steroids... but that was past. Everything changed now. The doctors said some kind of an auto immune condition. Fools, they have no clue about human body. The Mask Man stares at the calendar and this day is special for him. The day he discovered the cure. He was born to wealthy parents. He remembers how his father was always saying one day this will cure. The thoughts of his past started to pour inside his mind. It all started like some asthma when he was just twelve and soon started to get worse. He started to get pains all over joints and all over the body. He remembers his father taking him to all famous hospitals but nothing changed. There were frequent fights between his mom and dad and one day his mom took posion and left both of them alone. His father started to drink everyday and died in an accident and his life changed forever.
 
-The school life was tough for him. There were no friends and he was always alone. Everyone looked him odd seeing him always wearing a mask. Maybe he is sick, they thought. The loneliness didn't affect him. In fact, he has problems to connect with people too. Though nature gave him a weak body but blessed him with a highly intellectual brain. His teachers surprised by this intelligent and the same time concerned by his behavior. The behavior he can't even see the fellow human beings as his own level. For him they are immatured and low lives. This thought started to grow more and more along with the disease. After this father's deadth he swore to find a cure for his disease. He read every popular book out there. He didn't even miss to know the classic medicine. But nothing worked. He started to consult lot of doctors to know about this disease better but only very disappointed by their stupid science. The science where they see the human body is made of independent parts manufactured by different companies. Everything changed in this day. When his more evolved brain cracked the puzzle - the genetic code. He hurried to his usual doctor and asked about the new things he discovered in genetics.
+The school life was tough for him. There were no friends and he was always alone. Everyone looked at him odd seeing him always wearing a mask. Maybe he is sick, they thought. The loneliness didn't affect him. In fact, he has trouble to connect with people too. Though nature cursed him with a weak body but blessed him with a highly intellectual brain. His teachers surprised by this smartness and the same time concerned by his behavior. The behavior he can't even see the fellow students as his own fellow human beings. I'm more than them, he thought always. For him they are immatured and low lives. This thought started to grow more and more along with the disease. After his father's deadth he was living his grandma and swore to find a cure for his disease. He read every popular book out there. He didn't even miss to know about the holistic medicine. But nothing worked. He started to consult lot of doctors to know about this disease better but only very disappointed by their stupid science. The science where they see the human body is made of independent parts manufactured by different companies. Everything changed in this day. When his more evolved brain cracked the puzzle - the genetic code. He hurried to his usual doctor and asked about the new things he discovered.
 
-"Doctor if someone with this genetic profile can donate their bone marrow.. I think.. it'll resolve my immune condition"
+"Doctor, if someone with this genetic profile can donate their bone marrow.. I think.. it'll resolve my immune condition"
 
-"Comeon! Google is not a doctor. I don't think there is a cure for this condition. You should better continue the immuno suppresants"
+"Google is not a doctor. I don't think there is a cure for this condition. You should better continue the immuno suppresants"
 
 "But Doc.. I think..."
 
 "Who is the doctor here? I'm the one. Don't teach me about medicine"
 
-"But doc... treating symptons not gonna help. I spent a lot of money on this. I WANT THE CURE"
+"But doc... treating symptons not gonna help. I spent a lot of money on this. I WANT THE CURE!"
 
-"Don't shout at me. I don't have time for this. There are patients waiting out there. Better you get out from here"
+"Don't shout at me. I don't have time for this. There are patients waiting out there. Better you leave"
 
-There is no cure. This is what this fool say. But I know there is a cure. I need to test it. Why not I can this foolish doctor for my experiment. On that night I kidnapped the doc and for the first I did a surgery. His genetic profile was different but atleast I know how to do it. Now it's a matter of time to do it on the right one.
+There is no cure. This is what this fool say. But I know there is a cure. I need to test it. Why not I can use this foolish rat for my experiment. On that night he kidnapped the doc and for the first time he practised surgery.
 
-He was thinking about the two young woman and the man... how easily he trapped them. How foolish these human beings are? All these social sites and the internet things gives ton of information about a person, their interests, their movements.. and more. It's a month over now from the last. The bottles are already running out. He has to fill the new bottles today. Luckily he already have a prey. This time it's a woman. Let's do it! He hurries to the basement where the poor woman is tied in a bed.
+He was thinking about the two young woman and the man... how easily he trapped them. How foolish they are? All these social sites and the internet gives ton of information about a person, their interests, their movements.. and more. It's a month over now from the last hunt. The storage bottles are already running out. He has to fill the new bottles today. Luckily he already have a prey. Let's do it! He hurried to the basement where the poor woman is tied in a bed.
 
 
 ## The Lab
 
 
-How he could get the acces to their blood? Is he working in hospital? Martin didn't call me yet! Atone my phone rang.
+How he could get the acces to their blood? Is he working in hospital? Martin didn't call me yet! Atone, my phone rang.
 
-"Boss. You don't believe this"
+"Boss. You don't believe this. All of them visited hospital in a month period"
 
-"All of them visited hospital in a month period"
-
-"Yes... Yes. Same hospital?"
+"Yesss, Same hospital?"
 
 "No"
 
@@ -172,7 +170,11 @@ How he could get the acces to their blood? Is he working in hospital? Martin did
 
 "Two of them visited the City hospital and the other one different"
 
-"Alright. Thanks"
+"Message the details. Thanks"
+
+"Is anything else you need?"
+
+"No"
 
 So it's not the same hospital! That's little discouraging but let's take a visit to the City hospital.
 
