@@ -334,7 +334,7 @@ The Mask Man was surprised when he ran the bio match for the samples he stole fr
 
 The Mask Man dragged Victor to a dark room nothing but his operation room. He has more work to do. He has to stop Martin. It took a lot of time to find a place like this, old and isolated. Only old people and beggers come to this building. The old building is full on camera surveillance. The Mask Man turned on the computer and he saw Martin was coming to the basement. He took a gun with silencer. Martin was shocked to see Victor lying in the ground. He panicked and turned everywhere. He was here. He took low steps and started to move towards Victor. He slowly bent down and turned Victor and... who the hell? It's late. The Mask Man pulled the trigger couple of times in his head. Martin died with eyes in shock. Good riddance. He has to now only take care of their car to vanish all the evidence.
 
-
+*** END COMING SOON ***
 
 
 
