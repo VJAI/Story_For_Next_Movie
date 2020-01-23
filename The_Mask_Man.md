@@ -26,7 +26,7 @@ Darwin's face looks serious and concerned.
 
 "Inspector Martin will explain you further and I want you to get on this quick"
 
-Great! I was thinking to talk about my resignation today and here I get another case.
+Great! I was thinking to talk about my resignation today and here I got another case.
 
 "Well.. alright"
 
